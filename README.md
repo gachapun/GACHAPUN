@@ -28,7 +28,7 @@ she/he 20yrs ✦ ⁺ &nbsp;
 <a href="https://noxynoc.carrd.co/#">bf ♡</a>&nbsp;<br>
 <img src="https://gifcity.carrd.co/assets/images/gallery290/b19e258f.gif?v=3fc8f5cd" width="20" alt="icon" />
 &nbsp;
-<a href="https://gachapun.atabook.org/">新book</a>
+<a href="https://shafflez.carrd.co/#">website</a>
 
 <br>
 <a href="https://www.tiktok.com/@shafflez"><img src="https://img.shields.io/badge/TikTok-black?logo=tiktok&logoColor=white&style=for-the-badge" height="23" alt="TikTok" /></a>&nbsp;<a href="https://x.com/shafflez_"><img src="https://img.shields.io/static/v1?message=Twitter&logo=twitter&label=&color=1DA1F2&logoColor=white&labelColor=&style=for-the-badge" height="23" alt="Twitter" /></a>
